@@ -1,5 +1,5 @@
 # Tiles Adelaide
-Aurees **[Tiles Adelaide](https://aureestiles.com.au/)**is trusted destination for high-quality tiles and flooring solutions. We offer an extensive range of floor tiles, bathroom tiles, kitchen tiles, and outdoor tiles, ensuring the perfect fit for any space. Whether you're renovating your home or designing a new project, our expert team is here to help.
+Aurees **[Tiles Adelaide](https://aureestiles.com.au/)** is trusted destination for high-quality tiles and flooring solutions. We offer an extensive range of floor tiles, bathroom tiles, kitchen tiles, and outdoor tiles, ensuring the perfect fit for any space. Whether you're renovating your home or designing a new project, our expert team is here to help.
 
 <html>
 <body>
